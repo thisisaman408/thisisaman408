@@ -28,7 +28,7 @@ Check out my portfolio 👉 [kumaraman.me](https://kumaraman.me)
 
 ### 📫 Connect with Me
 - 🌐 [Portfolio](https://kumaraman.me)  
-- 💼 [LinkedIn](#) (add when ready)  
+- 💼 [LinkedIn](#) (nothing here!~)  
 - 📧 Email: thisisaman408@gmail.com 
 
 ---
